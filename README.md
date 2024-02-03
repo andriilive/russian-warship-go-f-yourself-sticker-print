@@ -1,4 +1,4 @@
-# Russian Warship Go F*** Yourself Sticker Print
+# Russian Warship Go F*** Yourself Sticker Print 🇺🇦
 
 [![StandWithUkraine](https://raw.githubusercontent.com/vshymanskyy/StandWithUkraine/main/badges/StandWithUkraine.svg)](https://github.com/vshymanskyy/StandWithUkraine/blob/main/docs/README.md)
 
