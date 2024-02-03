@@ -1,0 +1,1 @@
+# russian-warship-go-f-yourself-sticker-print
